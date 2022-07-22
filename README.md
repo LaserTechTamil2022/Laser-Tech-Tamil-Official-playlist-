@@ -5,7 +5,7 @@ Please support us by sharing our telegram channel 🙏🙏🙏🙏🙏🙏🙏�
 
 Click here to get m3u url
 👇👇👇👇👇👇👇👇👇👇
-https://4hsm.short.gy/LaserTechTamilOfficialPlaylist
+https://m3u-editor.com/serve/lt-playlist2022
 👆👆👆👆👆👆👆👆👆👆
 Copy and paste in your iptv playlist
 Which contains;
